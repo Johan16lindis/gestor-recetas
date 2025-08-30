@@ -1,3 +1,3 @@
-- Bandeja paisa
+- Bandeja paisa típica de Medellín
 - Ajiaco
 - Sancocho
