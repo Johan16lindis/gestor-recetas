@@ -1,3 +1,3 @@
-- Bandeja paisa
+- Bandeja paisa con frijoles antioqueños
 - Ajiaco
 - Sancocho
