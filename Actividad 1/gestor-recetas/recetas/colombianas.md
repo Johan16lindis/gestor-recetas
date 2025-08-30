@@ -1,3 +1,3 @@
-- Bandeja paisa típica de Medellín
+- Bandeja paisa con frijoles antioqueños, típica de Medellín
 - Ajiaco
 - Sancocho
